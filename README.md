@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Alexgohs
+- 👀 I’m interested in minecraft and cs:go (games).
+- 🌱 I’m currently learning to make minecraft mods
+- 💞️ I’m looking to collaborate on discord and minecraft.
+- 📫 How to reach me, my discord is monkey monk#6614
+- if you add my discord i want help making a discord server to my minecraft mods
+-
